@@ -1,3 +1,3 @@
 #### for contact
 
-- Discord: [crugoe#2016](https://discord.com/users/646592437665529868)
+- Discord: [crugoe#1337](https://discord.com/users/229480101681692673)
